@@ -1,1 +1,0 @@
-# primeroinfoproyecto2021
